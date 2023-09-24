@@ -4,8 +4,7 @@ Hi, there! It is Wan Xue's personal homepage❄️
 大家好！我是万雪，就读于中国海洋大学的计算机科学与技术专业（还在转专业中），来自江西南昌，今年18岁。
 ## 兴趣爱好✨
 ### 爱听歌🎧
-最喜欢的歌手是Taylor Swift和Avirl Lavigne！17岁喜欢的lyrics是``In a storm, in my best dress, fearless！``，现在18岁喜欢的是``Heartbreak is the national anthem
-We sing it proudly. We are too busy dancing to get knocked off our feet. Baby, we're the New Romatics. The best people in life are free!``还很喜欢kpop！酷酷的girl crush风格！是一枚midzy和neverland呀~
+最喜欢的歌手是Taylor Swift和Avirl Lavigne！17岁喜欢的lyrics是``In a storm, in my best dress, fearless！``，现在18岁喜欢的是``Heartbreak is the national anthem, we sing it proudly. We are too busy dancing, to get knocked off our feet. Baby, we're the New Romatics. The best people in life are free!``还很喜欢kpop！酷酷的girl crush风格！是一枚midzy和neverland呀😊
 ### 爱发呆散步🚶‍♀️
 双目无神的走在路上wander，喜欢一个人戴着耳机听着歌漫无目的四处乱晃悠。
 # 自我评估🪞
